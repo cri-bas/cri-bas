@@ -12,7 +12,7 @@
 
 ### Socials!
 📋 [LinkedIn](https://www.linkedin.com/in/fbcribas)
-📷 [Instagram](https://www.instagram.com/cri.bas?igsh=aXBmbzJ1bGxvbTRm&utm_source=qr)
+📷 [Instagram](https://www.instagram.com/cri.bas/)
 
 
 
